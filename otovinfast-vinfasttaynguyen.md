@@ -19,7 +19,7 @@ _(Xem tất cả xe Ô Tô VinFast phía dưới)_
 - 🚗 **[VinFast VF7](https://vinfasttaynguyen.com/vf7](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-vinfast-vf7)** - SUV cỡ C, kiểu dáng thể thao, trang bị công nghệ tiên tiến. Giá: **760.000.000₫** [Mua ngay](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-vinfast-vf7) 
 - 🚗 **[VinFast VF8](https://vinfasttaynguyen.com/vf8](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-vinfast-vf8-daklak)** - SUV hạng D, không gian rộng rãi, công nghệ lái thông minh. Giá: **1.116.337.000₫ – 1.285.337.000₫** [Mua ngay](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-vinfast-vf8-daklak))  
 - 🚗 **[VinFast VF9](https://vinfasttaynguyen.com/vf9](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-vinfast-vf-9-eco-plus)** - SUV hạng sang, 7 chỗ, nội thất cao cấp, khả năng vận hành mạnh mẽ. Giá: **1.380.000.000₫** [Mua ngay](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-vinfast-vf-9-eco-plus))  
-- 🚗 **[VinFast FADIL](https://vinfasttaynguyen.com/fadil](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-fadil)** - Mẫu xe xăng cỡ nhỏ, linh hoạt, tiết kiệm nhiên liệu. Giá: **560.000.000₫** [Mua ngay](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-fadil))  
+- 🚗 **[VinFast FADIL](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-fadil)** - Mẫu xe xăng cỡ nhỏ, linh hoạt, tiết kiệm nhiên liệu. Giá: **560.000.000₫** [Mua ngay](https://vinfasttaynguyen.com/dai-ly-vinfast-buon-ma-thuot/xe-fadil))  
 
 
 ### **THÔNG TIN LIÊN HỆ**  
