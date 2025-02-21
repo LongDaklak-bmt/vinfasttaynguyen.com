@@ -6,4 +6,10 @@ Với đội ngũ nhân viên tận tâm, VinFast Tây Nguyên luôn sẵn sàng
 
 Hệ thống showroom và trung tâm bảo hành của chúng tôi được trang bị hiện đại, đảm bảo mang đến sự tiện lợi và an tâm tuyệt đối cho khách hàng khi sử dụng sản phẩm VinFast.  
 
-Hãy đến với **[VinFast Tây Nguyên](https://vinfasttaynguyen.com/)** để trải nghiệm những dòng xe điện tiên tiến và cùng chung tay xây dựng một tương lai giao thông bền vững!
+Hãy đến với **[VinFast Tây Nguyên](https://vinfasttaynguyen.com/)** để trải nghiệm những dòng xe điện tiên tiến và cùng chung tay xây dựng một tương lai giao thông bền vững!  
+
+### **THÔNG TIN LIÊN HỆ**  
+📍 **Địa chỉ:** 360 Nguyễn Chí Thanh, TP Buôn Ma Thuột, Đắk Lắk  
+📞 **Điện thoại:** 0912 143 066  
+📧 **Email:** my.chevroletcongthanh@gmail.com  
+🌐 **Website:** [www.vinfasttaynguyen.com](https://www.vinfasttaynguyen.com/)
